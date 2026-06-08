@@ -1,2 +1,3 @@
-# APIS AI
-kembali bersama APIS AI PROJECT BEAN
+# PANDI
+kembali bersama PANDI AI
+kembali bersama KKK (KETUA KELAS KERING)
