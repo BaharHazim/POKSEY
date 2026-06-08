@@ -1,2 +1,2 @@
-# POKSEY
-kembali bersama poksey ai
+# PANDI
+kembali bersama PANDI AI
